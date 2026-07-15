@@ -1,1 +1,0 @@
-# 247ood-del.github.io
